@@ -1,4 +1,4 @@
-## مرحبا بكم على جيثاب مستودعات الامبؤاطور اليسع  :  wave:,  ♡♡♡♡♡.
+## مرحبا بكم على جيثاب مستودعات الامبراطور اليسع  :  wave:,  ♡♡♡♡♡.
 
 Let me introduce you about myself, my name is Zaid(Not Real); 17y.o from NCR(Delhi), India.
 
